@@ -8,9 +8,13 @@
 -  Pronouns: ...
 -  Fun fact: ...
 
-  /)  /)
-ପ(˶•-•˶)ଓ ♡
-  /づ  づ (puff puff) 𓂃 ࣪˖ ִֶָ𐀔 
+┊         ┊       ┊   ┊    ┊        ┊
+┊         ┊       ┊   ┊   ˚★⋆｡˚  ⋆
+┊         ┊       ┊   ⋆
+┊         ┊       ★⋆
+┊ ◦
+★⋆      ┊ .  ˚
+           ˚★
 
 <!---
 SA-9E-Alotaya/SA-9E-Alotaya is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
