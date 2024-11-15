@@ -1,4 +1,4 @@
-🎧 Margaux Alotaya 
+ 𝜗𝜚 ࣪˖ ִ𐙚  Margaux Alotaya 
 
 -  Hi, I’m @SA-9E-Alotaya
 -  I’m interested in Digital drawing, 3D Modeling, Sculpting, and Animating
