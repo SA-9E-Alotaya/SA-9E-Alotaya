@@ -4,6 +4,7 @@
  
  𝜗𝜚 ࣪˖ ִ𐙚  Margaux Alotaya 
 
+
 -  Hi, I’m @SA-9E-Alotaya
 -  Pronouns: She/her
 -  I’m interested in Digital drawing, 3D Modeling, Sculpting, and Animating
